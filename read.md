@@ -7,6 +7,7 @@ wala lang to teh
 ##purp
 dasdjadakfa
 #nyenye
+mama nyo pink
 
 ##Cjskdaoj
 
