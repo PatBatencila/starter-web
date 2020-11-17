@@ -2,8 +2,10 @@
 
 ##Introf
 
-##purp
+wala lang to teh
 
+##purp
+dasdjadakfa
 #nyenye
 
 ##Cjskdaoj
